@@ -1,0 +1,1 @@
+This repository is created in honor (he's not deceased) of my friend Jason. This website commemorates a meme about him and a memorable time we, and our friend group, shared together. Thanks Jason, we love ya.
